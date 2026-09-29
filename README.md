@@ -1,0 +1,2 @@
+# premium-bracket-clk-001-bracket-clock-case-veneer-repa
+Tired of losing track of which bracket clock case had that tricky rosewood veneer patch, or forgetting the exact glue mixture used on a delicate burl repair? Your repair history deserves the same precision as your craft—enter the Bracket Clock Case Veneer Repair Record.  This Notion template transforms your scattered notes and photos into a structu
